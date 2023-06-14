@@ -1,2 +1,2 @@
-# vatsal-shah7804
+# vatsal7804
 MY PERSONAL REPOSITORY.
